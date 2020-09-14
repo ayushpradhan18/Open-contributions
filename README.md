@@ -1,0 +1,1 @@
+Hi I'm Ayush , I'm currently pursuing maasters in DL & CV , I have mathematical intution about most of the algorithm in Data Science thus I want to apply my knowledge to work by gaining hands-on experience by working on real life data .That's why Im want to pursue this Intenship , to broaden my skillsets
